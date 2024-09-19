@@ -10,4 +10,4 @@ Meu nome é Helen Cristine.
 
 - Intitucional: 00001124160905sp@al.educacao.sp.gov.br
 
-![](https://media1.tenor.com/m/v1t20zNF-k4AAAAC/naruto-anime.gif)
+![](https://media1.tenor.com/m/rpZ3VI15Wi0AAAAC/hinata-shy.gif)
